@@ -1,1 +1,3 @@
-vdedede moi 90?
+dededeedede moi 90? 
+ya starayus
+bud laska
